@@ -1,4 +1,4 @@
-- 👋 Magdalena Kiszka
+- 👋 Magda
 
 
 <!---
